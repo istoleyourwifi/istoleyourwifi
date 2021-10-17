@@ -1,0 +1,2 @@
+- 👋 Yo
+- New dev, learning as i go.. 
